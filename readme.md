@@ -15,7 +15,7 @@ ________________________________________________________________________________
 
 **Original: [Jcw87](https://github.com/Jcw87)**
 
-**Song Used: [Désireux De Vous Pardonner/Wanting to forgive you](https://www.youtube.com/watch?v=VxYLfcE3Rio)**
+**Song Used: [Désireux De Vous Pardonner](https://www.youtube.com/watch?v=VxYLfcE3Rio)/[Wanting to forgive you](https://www.youtube.com/watch?v=VxYLfcE3Rio)**
 
 **Song Creator: Porkchop (I don't have a link ;n;)**
 
