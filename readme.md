@@ -7,7 +7,7 @@ ________________________________________________________________________________
 
 # Credit
 
-**Recolor/Color Palette by: Me**
+**Sprites by: [Me](https://github.com/kayos156)**
 
 **Some attacks by: [estebanfer](https://www.reddit.com/user/estebanfer)**
 
@@ -15,8 +15,8 @@ ________________________________________________________________________________
 
 **Original: [Jcw87](https://github.com/Jcw87)**
 
-**Song Used: [SOLLICITUS II](https://soundcloud.com/ragher/swapped-realities-sollicitus-updated)**
+**Song Used: [Désireux De Vous Pardonner/Wanting to forgive you](https://www.youtube.com/watch?v=VxYLfcE3Rio)**
 
-**Song Creator: [Judge](https://soundcloud.com/ragher)**
+**Song Creator: Porkchop (I don't have a link ;n;)**
 
 **Final Attack(s): [Mush 2 Blue](https://www.youtube.com/channel/UCMHwpcP2P4AbV1tDgz5N5XA)**
